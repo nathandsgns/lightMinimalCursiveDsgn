@@ -1,1 +1,1 @@
-# lightMinimalCursiveDsgn
+# lightMinimalCursiveDsgn.github.io
